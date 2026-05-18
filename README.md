@@ -1,1 +1,1 @@
-https://github.com/Irfan-Bin-Mojib/Assignment-on-STAT-2205.git
+https://www.overleaf.com/read/brzqvkvvzrzw#fd25da
